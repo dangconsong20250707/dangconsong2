@@ -15,4 +15,4 @@
 
 为了提升用户体验，我们特别注重页面加载速度与优化，确保视频不卡顿、流畅播放，同时加强移动端适配，保证在各种设备上的观看体验无差别。通过精准的SEO优化，页面标题、描述和内容中自然融入了“日本AV免费”、“无码、高清”等关键词，帮助用户快速找到最相关的资源。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangconsong20250707/dangconsong2 ）</span>
